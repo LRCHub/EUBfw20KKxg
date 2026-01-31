@@ -1,4 +1,4 @@
-# Kordhell – Death Bound
+# KORDHELL – Death Bound
 
 > **歌詞登録ステータス：同期歌詞あり**
 
